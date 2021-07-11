@@ -15,3 +15,9 @@ In many aspects of life, indeed, wealth does command top-grade products or servi
 &nbsp;
 
 Wealthy individuals are able to pay for personalized advice, which is [undoubtedly](https://www.youtube.com/watch?v=TI5p8vqdjTw&ab_channel=BenFelix) [valuable](https://www.youtube.com/watch?v=NeTsh--UEe4&ab_channel=ThePlainBagel) to many people. But they have special access to very few investment opportunities that most people would want, if they understood the risks and likely returns. Be skeptical of exclusive offers.
+
+&nbsp;
+
+[Click here for the next section — Practical information for execution](https://github.com/investindex/Practical)
+
+&nbsp;
