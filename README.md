@@ -14,10 +14,26 @@ In many aspects of life, indeed, wealth does command top-grade products or servi
 
 &nbsp;
 
-Wealthy individuals are able to pay for personalized advice, which is [undoubtedly](https://www.youtube.com/watch?v=TI5p8vqdjTw&ab_channel=BenFelix) [valuable](https://www.youtube.com/watch?v=NeTsh--UEe4&ab_channel=ThePlainBagel) to many people. But they have special access to very few investment opportunities that most people would want, if they understood the risks and likely returns. Be skeptical of exclusive offers.
+Wealthy individuals are able to pay for expert personalized advice, which is [undoubtedly](https://www.youtube.com/watch?v=TI5p8vqdjTw&ab_channel=BenFelix) [valuable](https://www.youtube.com/watch?v=NeTsh--UEe4&ab_channel=ThePlainBagel) to many people. But they have special access to very few investment opportunities that most people would want, if they understood the risks and likely returns. Be skeptical of exclusive offers.
 
 &nbsp;
 
 [Click here for the next section — Practical information for execution](https://github.com/investindex/Practical)
+
+&nbsp;
+
+All sections:
+
+* [Cover page](https://github.com/investindex/Intro)
+* [Introduction to index funds](https://github.com/investindex/Index)
+* [Thinking about risk](https://github.com/investindex/Risk)
+* [Guidelines for financial planning](https://github.com/investindex/Guidelines)
+* [Building a stock portfolio](https://github.com/investindex/Portfolio)
+* [Fund proposals](https://github.com/investindex/Funds)
+* [Concerns for the small investor](https://github.com/investindex/Small)
+* [Concerns for the large investor](https://github.com/investindex/Large)
+* [Practical information for execution](https://github.com/investindex/Practical)
+* [Taxes](https://github.com/investindex/Taxes)
+* [Vocabulary and further resources](https://github.com/investindex/Vocab)
 
 &nbsp;
