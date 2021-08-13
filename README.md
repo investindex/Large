@@ -14,7 +14,7 @@ In many aspects of life, indeed, wealth does command top-grade products or servi
 
 &nbsp;
 
-Wealthy individuals naturally find it easier to pay for expert personalized advice, which is [undoubtedly](https://www.youtube.com/watch?v=TI5p8vqdjTw&ab_channel=BenFelix) [valuable](https://www.youtube.com/watch?v=NeTsh--UEe4&ab_channel=ThePlainBagel) to many people. But they have special access to very few investment opportunities that most people would want, if they understood the risks and likely returns. As Buffett emphasized, there are also many advisors who are incentivized to sell you high-fee products which generate profits for them at the expense of their clients. So you cannot seek professional advice without understanding that some advisors are predatory or [uninformed](https://www.youtube.com/watch?v=sqXh0MLCfiM&ab_channel=BenFelix). Be skeptical of exclusive offers.
+Wealthy individuals naturally find it easier to pay for expert personalized advice, which is [undoubtedly](https://www.youtube.com/watch?v=TI5p8vqdjTw&ab_channel=BenFelix) [valuable](https://www.youtube.com/watch?v=NeTsh--UEe4&ab_channel=ThePlainBagel) to many people. But they have special access to very few investment opportunities that most people would want, if they understood the risks and likely returns. As Buffett emphasized, there are also many advisors who are incentivized to sell you high-fee products which generate profits for them at the expense of their clients. So you cannot seek professional advice without understanding that some advisors are predatory or [uninformed](https://www.youtube.com/watch?v=FlpwTJJEasA&ab_channel=BenFelix). Be skeptical of exclusive offers.
 
 &nbsp;
 
